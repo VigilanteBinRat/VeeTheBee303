@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @VeeTheBee303
+- 👀 I’m interested in stuff
+- 🌱 I’m currently learning python 
+- 📫 How to reach me: discord
+- 😄 Pronouns: she/they/he
+- ⚡ Fun fact: I'm in your walls :3
