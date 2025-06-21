@@ -1,4 +1,4 @@
 - I sort of programme
 - discord - vigilantebinrat
-- any pronouns
+- she/they
 - I'm in your walls :3
